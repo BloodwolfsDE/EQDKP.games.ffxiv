@@ -1,0 +1,1 @@
+# EQDKP.games.ffxiv
